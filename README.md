@@ -1,4 +1,4 @@
-![alt text](https://images.hdqwalls.com/download/skull-hacking-time-4k-rh-1990x720.jpg)
+![alt text](https://images.hdqwalls.com/download/skull-hacking-time-4k-rh-1920x1080.jpg)
 - 👋 Hi, I’m @armadill00
 - ✅ IT Engineer
 - 🖥️ ComptiA Security +
